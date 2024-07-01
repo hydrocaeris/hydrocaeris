@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **rykzagt@gmail.com**
 
-- ⚡ Fun fact **I'm a Touhou (an bullet hell game from TEAM SHANGHAI ALICE) fan and Cosplay! (currently on hiatus)**
+- ⚡ Fun fact **I'm a Touhou fan (an bullet hell game from TEAM SHANGHAI ALICE) and Cosplay! (currently on hiatus)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
